@@ -1,2 +1,2 @@
-# toko-masa-kita-privacy
-Privacy Policy for Toko Masa Kita
+# sate-taipan-privacy
+Privacy Policy for Sate Taipan
