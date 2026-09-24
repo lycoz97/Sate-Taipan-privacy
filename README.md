@@ -1,2 +1,2 @@
-# Satai-privacy
-Privacy Policy for Satai
+# Sate Taipan-privacy
+Privacy Policy for Sate Taipan
